@@ -9,3 +9,6 @@
 - ⚡ Fun fact: I have been a barber, a sweeper, a streamer, and now an aspiring programmer. :zap:
 
 ![0a10af70-6cbf-46df-9071-0ff586a3b1d6](https://github.com/Colunga-D/Colunga-D/assets/144242776/20467a3c-1b98-4dbc-8537-2fe5c898fa71)
+
+This page will be regularly updated
+See u soon! :heavy_check_mark:
