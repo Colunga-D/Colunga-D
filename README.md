@@ -7,4 +7,5 @@
 - 💬 Ask me about as u want! You are free
 - 📫 How to reach me: xiamkaiser@gmail.com :mag:
 - ⚡ Fun fact: I have been a barber, a sweeper, a streamer, and now an aspiring programmer. :zap:
-![68747470733a2f2f6d656d65722d7472696e69622e76657263656c2e6170702f](https://github.com/Colunga-D/Colunga-D/assets/144242776/0aabb21f-185b-4f07-86a9-e1be3d83335e)
+
+![0a10af70-6cbf-46df-9071-0ff586a3b1d6](https://github.com/Colunga-D/Colunga-D/assets/144242776/20467a3c-1b98-4dbc-8537-2fe5c898fa71)
